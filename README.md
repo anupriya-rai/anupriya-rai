@@ -34,7 +34,7 @@
 
 ## Connect With Me
 
-- LinkedIn: [Add your LinkedIn Profile URL here]
+- LinkedIn: [https://www.linkedin.com/in/anupriya-rai-93b805430?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app]
 - Email: 2601060198@krmu.edu.in
 
 ---
